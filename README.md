@@ -1,0 +1,1 @@
+Curso muito didático. Achei muito interessante ele fomentar o desenvolvimento de habilidades técnicas e também das soft skills! 
